@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aqsawaheedgithub
+- 👀 I’m interested in reading, writing and creativity.
+- 🌱 I’m currently learning graphics , logos , illustration.
+- 💞️ I’m looking to collaborate on fiverr
+- 📫 How to reach me ﻿https://www.linkedin.com/in/aqsa-waheed-71b290215
